@@ -12,3 +12,7 @@
 筑波大学現代視覚文化研究会美少女ゲーム制作班「philia」のホームページです。
 
 https://bishojo.gsk-tsukuba.net/
+
+### Twitter
+
+https://x.com/tsukuba_bishojo
